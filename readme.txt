@@ -6,6 +6,7 @@ who are you£¿
 
 I¡¯am fin£¬Thkanks£¬And you£¿
 hhhhhhhh
-nihaowojiaojingqng
-what's your name£¿
-Creating a new Brackn is quick & simple
+nihaowojiaojingq
+Creating a new Brackn is quick 
+Creating a new Branch is quick 
+
