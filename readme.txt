@@ -3,6 +3,6 @@ my fit tiger
 are you ok?
 
 who are you£¿
-biger tiger and tiger
+tiger and tiger
 what time
 
